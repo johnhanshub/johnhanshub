@@ -2,4 +2,4 @@
 - 🍇 **Experimenting** with the unconventional *is my jam*
 - 🌱 Currently playing with **Vibe Coding**
 - 🫰🏼 I love **Craft** so clean you can eat off it
-- 💎 Climbing Side Quest
+- 💎 **Climbing** Side Quest
