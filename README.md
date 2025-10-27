@@ -1,5 +1,5 @@
-- 🪐 **Product Designer** 짱 (◠‿・)—☆
+- 🪐 I'm a **Product Designer** 짱 (◠‿・)—☆
 - 🍇 **Experimenting** with the unconventional *is my jam*
 - 🌱 Currently playing with **Vibe Coding**
-- 🫰🏼 **Craft** so clean you can eat off it
+- 🫰🏼 I love **Craft** so clean you can eat off it
 - 💎 Climbing Side Quest
